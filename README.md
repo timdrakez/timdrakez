@@ -11,6 +11,8 @@
 ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎  ‎❏　　𓈒   ֺ 　　ꬼo ᥅oໃeplayຣ ປnໃess ⨍riendຣ .‎ ‎‎ ‎
 
  ‎‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎  ‎‎ ‎𓎐　　 ֺ   𓈒　　ı̊nt tວ ᧁet to 𐓦nວw ຕe .
+ 
+  ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎  ‎❏　　𓈒   ֺ 　　เ ใo𐐷𝑒 Tiఇ Dr⍺‌ִׁ‌ƙׁׅ֑ꫀׁׅܻ !! ‎‎ 
   ‎‎ ‎‎ ‎ ‎‎ 
 
 <img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/a76a82fa-f2a1-40b0-a113-6ba2e48054bf" />
