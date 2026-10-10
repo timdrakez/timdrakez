@@ -1,4 +1,12 @@
 ‎<img width="1280" height="76" alt="image" src="https://github.com/user-attachments/assets/332fd118-cc5a-4201-8cea-5d03da6366be" />
-<img width="800" height="230" alt="timdrake" src="https://github.com/user-attachments/assets/7b90d535-3d24-4288-b0b2-029ac5b2eeaa" />
-<img width="798" height="93" alt="hearts" src="https://github.com/user-attachments/assets/7bae8042-ba1b-4e0f-bb80-031d5c21813c" />
+<img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/a76a82fa-f2a1-40b0-a113-6ba2e48054bf" />
+<img width="800" height="35" alt="image" src="https://github.com/user-attachments/assets/bfde8c8c-f0f3-44ac-b399-56704e72774f" />
+‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎  ‎‎ ‎𓎐　　 ֺ   𓈒　　᧙﹙υׁׅddℓᧉׅ﹚+ ꫝ﹙𝒾dᧉׅ﹚ᧉׅncour⍺geȡ .‎ ‎‎ ‎‎
 
+‎‎ ‎‎ ‎‎ ‎‎  ‎‎ ‎‎ ‎‎ ‎‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎❏　　𓈒   ֺ 　　ꬼo 𝗰⵿ᩘpy / 𔖳𝝸๋nsp ຟ/o թermຣ .‎ ‎‎ ‎‎ ‎ ‎‎ ‎
+
+‎‎ ‎‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎  ‎‎ ‎𓎐　　 ֺ   𓈒　　𐒄y ⨍irsȶ ໃanguage เsn'ȶ 𐒢nglis𐒅 .‎ ‎‎ ‎
+
+‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎  ‎❏　　𓈒   ֺ 　　ꬼo ᥅oໃeplayຣ ປnໃess ⨍riendຣ .‎ ‎‎ ‎
+
+ ‎‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎  ‎‎ ‎𓎐　　 ֺ   𓈒　　ı̊nt tວ ᧁet to 𐓦nວw ຕe .
