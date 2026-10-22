@@ -17,7 +17,7 @@
   
    ‎‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎  ‎‎ ‎𓎐　　 ֺ   𓈒　　-16 𝕥hiꬼ ı̊ce , 25+ dກi .‎ ‎‎ 
    
-  ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎  ‎❏　　𓈒   ֺ 　　Ꭾrobably wı̊ll ꬼot  alk / ı̊n𝕥 ⍺sidꮛ ⨍rom ᧙ + ꫝ 𝓊nlesຣ ᥳᩛou 𝒹o .
+  ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎  ‎❏　　𓈒   ֺ 　　Ꭾrobably wı̊ll ꬼot  𝕥alk / ı̊n𝕥 ⍺sidꮛ ⨍rom ᧙ + ꫝ 𝓊nlesຣ ᥳᩛou 𝒹o .
   ‎‎ ‎‎ ‎ ‎‎ 
 
 <img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/a76a82fa-f2a1-40b0-a113-6ba2e48054bf" />
