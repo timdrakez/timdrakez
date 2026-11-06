@@ -18,6 +18,8 @@
    ‎‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎  ‎‎ ‎𓎐　　 ֺ   𓈒　　-16 & 25+ 𝕥hiꬼ ı̊ce (Ꭾrefer⍺bly dກı̊ .)‎ ‎‎ 
    
   ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎  ‎❏　　𓈒   ֺ 　　Ꭾrobably wı̊ll ꬼot  𝕥alk / ı̊n𝕥 ⍺sidꮛ ⨍rom ᧙ + ꫝ 𝓊nlesຣ ᥳᩛou 𝒹o .
+  
+   ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎𓎐　　 ֺ 𓈒　　VERY VERY ໃikꫀׁׅܻly ⍺fk / 𐐫ff𝕥⍺b ! Whiຣpe᥅ 2 ı̊ntꫀׁׅܻrac𝕥 !‎
   ‎‎ ‎‎ ‎ ‎‎ 
 
 <img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/a76a82fa-f2a1-40b0-a113-6ba2e48054bf" />
